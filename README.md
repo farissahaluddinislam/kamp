@@ -1,0 +1,2 @@
+# kamp
+njajal cuk
